@@ -1,0 +1,3 @@
+Belajar kolaborasi dimulai dari hal sederhana: mendengar pendapat orang lain, menjelaskan ide dengan jelas, dan tidak takut menerima masukan. Dalam satu tim, Banghasan sering memberi sudut pandang yang tenang, Pak Fei teliti melihat detail, Pak Aan membantu menjaga arah kerja tetap rapi, dan Pakgun mendorong semua orang agar berani mencoba solusi baru.
+
+Kolaborasi juga butuh kebiasaan kecil yang konsisten, seperti membagi tugas dengan jelas, memberi kabar tentang progres, dan menyelesaikan masalah tanpa saling menyalahkan. Dari kerja bersama seperti itu, setiap orang tidak hanya belajar menyelesaikan pekerjaan, tetapi juga belajar saling percaya dan tumbuh sebagai tim.
